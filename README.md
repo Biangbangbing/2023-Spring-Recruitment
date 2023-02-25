@@ -68,10 +68,10 @@ for 2023春招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 ~~待完成~~
 
 
-# 秋招信息汇总文档others
+# 春招信息汇总文档others
 1. https://docs.qq.com/doc/DVHlvb1JVbGFXbnhq
 
 
-# 秋招沟通交流群
+# 春招沟通交流群
 
 秋招沟通交流群：659921392
