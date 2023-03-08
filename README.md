@@ -62,6 +62,12 @@ for 2023春招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 【已开始】投递链接：https://zhaopin.nbcb.com.cn/
 
 
+# 百度
+
+内推码：IZBJ3R
+
+【已开始，只有实习】投递链接：https://talent.baidu.com/jobs/list?recruitType=INTERN
+
 ------
 
 # 春招信息汇总文档
