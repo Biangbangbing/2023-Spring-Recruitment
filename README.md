@@ -17,7 +17,7 @@ for 2023春招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 链接自带内推码
 
-【未开可尝试投】[投递连接](https://job.toutiao.com/campus/m/position?external_referral_code=S7Z85H7&type=2)
+【已开始：春招补录+实习转正】[投递连接](https://job.toutiao.com/campus/m/position?external_referral_code=S7Z85H7&type=2)
 
 
 # 帆软
@@ -67,6 +67,13 @@ for 2023春招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 内推码：IZBJ3R
 
 【已开始，只有实习】投递链接：https://talent.baidu.com/jobs/list?recruitType=INTERN
+
+
+# 东方甄选
+
+内推码：走链接投简历直接送筛
+
+【已开始】投递链接：http://www.xzc.cn/Utuz88EG2z
 
 ------
 
