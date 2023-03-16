@@ -75,6 +75,13 @@ for 2023春招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 【已开始】投递链接：http://www.xzc.cn/Utuz88EG2z
 
+
+# 途游游戏
+
+内推码：DSYU13bd
+
+【已开始】投递链接：https://app.mokahr.com/campus-recruitment/tuyoogame/71965?sourceToken=78e973ff58b31b1d7bd37892e904cd33#/
+
 ------
 
 # 春招信息汇总文档
